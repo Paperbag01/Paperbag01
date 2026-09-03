@@ -17,9 +17,9 @@ I'm mostly here to have fun, meet cool people that have the same interest, and w
 I enjoy drawing and spending time with my friends, especially when there's nothing better to do lol.
 
 ✦ Identity
-🏳️‍🌈 Omnisexual
-💜 Demiromantic
-🩶 Grayromantic
+ Omnisexual
+ Demiromantic
+ Grayromantic
 
  You might find me In the hills hanging out, chatting, or just doing absolutely nothing.
 
