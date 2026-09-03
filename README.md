@@ -7,9 +7,9 @@ Just some guy who likes drawing, hanging out, and making friends W2I + C+H :3
 ✦ About Me
 Name / Nickname: Aaron / Andrew
 Pronouns: He/Him
-Hobbies: 🎨 Drawing mostly... idk lol
-Likes: 💬 Hanging out with my friends
-Dislikes: 🚫 Rude people
+Hobbies: 🎨 Drawing mostly... idk lol.
+Likes: 💬 Hanging out with my friends.
+Dislikes: 🚫 Rude people.
 Taken by my Branzy <3
 ✦ A Little More About Me :D
 
