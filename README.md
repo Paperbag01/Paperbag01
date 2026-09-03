@@ -1,6 +1,6 @@
 ⋆｡°✩ Hey, I'm Aaron! ✩°｡⋆
 
-Just some guy who likes drawing, hanging out, and making friends W2I + C+H :3
+Just some guy who likes to chill out, hang out, and make friends W2I + C+H :3
 
 ╭─────────────── ⋆｡°✩°｡⋆ ───────────────╮
 
