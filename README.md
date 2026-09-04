@@ -5,7 +5,7 @@ Just some guy who likes to chill out, hang out, and make friends W2I + C+H :3
 ╭─────────────── ⋆｡°✩°｡⋆ ───────────────╮
 
 ✦ About Me
-Name / Nickname: Aaron / Andrew
+Name / Nickname: Aaron & Andrew
 Pronouns: He/Him
 Hobbies: 🎨 Drawing mostly... idk lol.
 Likes: 💬 Hanging out with my friends.
